@@ -2,11 +2,7 @@
 Wishlist
 
 
-It can be similar/
-
 https://www.prodavnicaalata.rs/proizvodi/akumulatorska-busilica-einhell-te-cd-18-2-li-solo/
-
-Not exactly this brand
 
 https://www.tehnomedia.rs/kucni-aparati/mikser/comfee-mj-bh30w103.html#data
 
